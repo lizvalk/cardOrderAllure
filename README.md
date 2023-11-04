@@ -1,1 +1,1 @@
-![image](https://github.com/lizvalk/cardOrderAllure/assets/125139219/6a4a678f-91ca-4f60-8255-5c3a6186d4d7)
+![image](https://github.com/lizvalk/cardOrderAllure/assets/125139219/d853b4df-d3d8-4e2b-84c4-4a978d0ad204)
